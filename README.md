@@ -1,2 +1,2 @@
-# KrishnkanyDubey.github.io
+# KrishnkantDubey.github.io
 Personal website
